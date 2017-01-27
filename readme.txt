@@ -1,1 +1,1 @@
-We are kool and proud
+We are rad and proud
