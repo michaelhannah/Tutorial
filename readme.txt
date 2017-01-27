@@ -1,1 +1,1 @@
-We are cool and proud
+We are rad and proud
